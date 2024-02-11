@@ -1,1 +1,1 @@
-# [💻 Homepage - danielblach.dev
+💻 Homepage - danielblach.dev
